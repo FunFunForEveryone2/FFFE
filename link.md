@@ -1,1 +1,1 @@
-https://netherblade6.github.io/fffe/
+https://funfunforeveryone.github.io/FFFE/
